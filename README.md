@@ -1,1 +1,1 @@
-
+at initial learning stage
